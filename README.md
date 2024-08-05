@@ -1,5 +1,5 @@
 <p></p>
-<p align="center">\
+<p align="center">
 <p align="center"> UNDER CONSTRUCTION </p>
 <p align="center"> pfp by panyasha on twt </p>
 <p align="center"> graphics by the last of us </p>
